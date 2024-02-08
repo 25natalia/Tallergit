@@ -6,3 +6,7 @@ Dentro de toda la colección de cuentos y fábulas de Rafael Pombo, podemos menc
 "El hijo de rana, Rinrín renacuajo, salió esta mañana muy tieso, muy majo. Con pantalón corto, corbata a la moda, sombrero encintado y chupa de boda. -¡Muchacho, no salgas! - Le grita mamá, pero él hace un gesto y orondo se va". Rafael Pombo.
 
 Por eso, de toda su colección literaria, te recomendamos 3 libros compuestos por más de 160 fábulas cortas y cuentos infantiles ideales para leer en familia y descubrir juntos la magia de sus versos y rimas.
+
+La alegría y gracia de personajes como: La pobre viejecita, El renacuajo paseador, Rinrin Renacuajo, Juan Matachín y Simón el bobito, se reúnen en esta colección de historias cortas contadas en verso, calificada como una joya de la literatura infantil.
+
+La francachela prohibida de Rinrin Renacuajo, la cordura de Simón el bobito, la tacañez de La pobre viejecita y la ropa militar de Juan Matachín con sus sueños de ser un gran general, se convertirán en los cuentos de Rafael Pombo que los más pequeños recordarán toda su vida, junto a sus enseñanzas inspiradas en su vocación por la pedagogía.

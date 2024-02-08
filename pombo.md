@@ -4,3 +4,5 @@ La música y la literatura infantil colombiana están influenciadas por las obra
 Dentro de toda la colección de cuentos y fábulas de Rafael Pombo, podemos mencionar los más reconocidos como Simón el bobito, La pobre viejecita, Mirringa Mirronga y El renacuajo paseador. Cada uno de sus personajes hace que los niños traviesos y juiciosos se identifiquen con sus aventuras y le encuentren un gusto especial por su musicalidad.
 
 "El hijo de rana, Rinrín renacuajo, salió esta mañana muy tieso, muy majo. Con pantalón corto, corbata a la moda, sombrero encintado y chupa de boda. -¡Muchacho, no salgas! - Le grita mamá, pero él hace un gesto y orondo se va". Rafael Pombo.
+
+Por eso, de toda su colección literaria, te recomendamos 3 libros compuestos por más de 160 fábulas cortas y cuentos infantiles ideales para leer en familia y descubrir juntos la magia de sus versos y rimas.
